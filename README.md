@@ -199,4 +199,4 @@ La respuesta es **b) Promover la conciencia sobre el cuidado del medio ambiente*
 
 ---
 
-¡Espero que disfrutes el quiz y aprendas más sobre sustentabilidad en las escuelas!
+¡Espero que disfrutes el quiz y aprendas más sobre sustentabilidad en las escuelas!✨️🌱
